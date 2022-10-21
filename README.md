@@ -40,8 +40,8 @@ Here are some ideas to get you started:
 </table>
 -->
 ## :book: 𝙰𝚋𝚘𝚞𝚝 𝙼𝚎
-- 🖥 𝙵𝚞𝚕𝚕-𝚜𝚝𝚊𝚌𝚔 𝚜𝚘𝚏𝚝𝚠𝚊𝚛𝚎 𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛
-- 🎓 𝚂𝚝𝚞𝚍ied Masters in Information Technology from University of South Florida, 𝚌𝚕𝚊𝚜𝚜 𝚘𝚏 𝟸016
+- 🖥 Full-Stack Software Developer 
+- 🎓 Studied Masters in Information Technology from University of South Florida 2016-18
 - 🏊🚴🏃 Ultra Endurance Athlete 
 - 🧱🏊‍♀️🚴‍♂️ 🍔🍺 IRONMAN 70.3 
 - 🚴‍♂️ Century Bike Rider (Imperial System)
