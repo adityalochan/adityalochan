@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ## :book: 𝙰𝚋𝚘𝚞𝚝 𝙼𝚎
 - Full-Stack Software Developer 🖥 
 - Ultra Endurance Athlete 🏊🚴🏃 
+- Ultra-Runner (100K) 🏃🔥🔥🔥🔥
 - IRONMAN 70.3 🧱🏊‍♀️🚴‍♂️ 🍔
 - Century Bike Rider (Imperial System) 🚴‍♂️ 
 - Half-Marathon Swimmer 🏊‍♀️ 
