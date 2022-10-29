@@ -40,12 +40,11 @@ Here are some ideas to get you started:
 </table>
 -->
 ## :book: 𝙰𝚋𝚘𝚞𝚝 𝙼𝚎
-- 🖥 Full-Stack Software Developer 
-- 🎓 Studied Masters in Information Technology from University of South Florida 2016-18
-- 🏊🚴🏃 Ultra Endurance Athlete 
-- 🧱🏊‍♀️🚴‍♂️ 🍔🍺 IRONMAN 70.3 
-- 🚴‍♂️ Century Bike Rider (Imperial System)
-- 🏊‍♀️ Half-Marathon Swimmer
+- Full-Stack Software Developer 🖥 
+- Ultra Endurance Athlete 🏊🚴🏃 
+- IRONMAN 70.3 🧱🏊‍♀️🚴‍♂️ 🍔
+- Century Bike Rider (Imperial System) 🚴‍♂️ 
+- Half-Marathon Swimmer 🏊‍♀️ 
 
 <!-- 
 ## ⬆ 𝚆𝚑𝚊𝚝 𝙸'𝚖 𝚞𝚙 𝚝𝚘
