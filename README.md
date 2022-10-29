@@ -47,6 +47,7 @@ Here are some ideas to get you started:
 - IRONMAN 70.3 🧱🏊‍♀️🚴‍♂️ 🍔
 - Century Bike Rider (Imperial System) 🚴‍♂️ 
 - Half-Marathon Swimmer 🏊‍♀️ 
+- Vegetarian 🌱✅
 
 <!-- 
 ## ⬆ 𝚆𝚑𝚊𝚝 𝙸'𝚖 𝚞𝚙 𝚝𝚘
