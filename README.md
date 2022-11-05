@@ -48,6 +48,7 @@ Here are some ideas to get you started:
 - Half-Marathon Swimmer 🏊‍♀️ 
 - Vegetarian 🌱✅
 
+Dream to qualify for Ultraman world championship 
 <!-- 
 ## ⬆ 𝚆𝚑𝚊𝚝 𝙸'𝚖 𝚞𝚙 𝚝𝚘
 - 🔨 𝙸'𝚖 𝚌𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢... -->
