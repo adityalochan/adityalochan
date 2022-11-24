@@ -43,7 +43,7 @@ Here are some ideas to get you started:
 - Full-Stack Software Developer 🖥 
 - Ultra Endurance Athlete 🏊🚴🏃 
 - Ultra-Runner (100K) 🏃🔥🔥🔥🔥
-- IRONMAN 70.3 🧱🏊‍♀️🚴‍♂️ 🍔
+- IRONMAN 70.3 🏊🚴🏃🍔
 - Century Bike Rider (Imperial System) 🚴‍♂️ 
 - Half-Marathon Swimmer 🏊‍♀️ 
 - Vegetarian 🌱✅
