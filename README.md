@@ -46,6 +46,7 @@ Here are some ideas to get you started:
 - IRONMAN 70.3 🏊🚴🏃🍔
 - Century Bike Rider (Imperial System) 🚴‍♂️ 
 - Half-Marathon Swimmer 🏊‍♀️ 
+- Scuba Diver 🤿
 - Vegetarian 🌱✅
 
 Aspiring Ultraman Florida
