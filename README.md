@@ -40,6 +40,7 @@ Here are some ideas to get you started:
 </table>
 -->
 ## :book: 𝙰𝚋𝚘𝚞𝚝 𝙼𝚎
+- Vegetarian 🌱✅
 - Full-Stack Software Developer 🖥 
 - Ultra Endurance Athlete 🏊🚴🏃 
 - Ultra-Runner (100K) 🏃🔥🔥🔥🔥
@@ -47,7 +48,6 @@ Here are some ideas to get you started:
 - Century Bike Rider (Imperial System) 🚴‍♂️ 
 - Half-Marathon Swimmer 🏊‍♀️ 
 - Scuba Diver 🤿
-- Vegetarian 🌱✅
 
 Aspiring Ultraman Florida
 <!-- 
