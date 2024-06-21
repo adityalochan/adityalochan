@@ -40,7 +40,9 @@ Here are some ideas to get you started:
 </table>
 -->
 ## :book: 𝙰𝚋𝚘𝚞𝚝 𝙼𝚎
-- Full-Stack Software Developer 🖥 
+- Full-Stack Software Developer 🖥
+- USA Triathlon Nationals Championship Qualifier
+- Podium - Olympic Triathlon USAT 🥇 
 - Ultra Endurance Athlete 🏊🚴🏃 
 - Ultra-Runner (100K) 🏃🔥🔥🔥🔥
 - 2x IRONMAN 70.3 🏊🚴🏃🍔
