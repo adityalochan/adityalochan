@@ -41,7 +41,6 @@ Here are some ideas to get you started:
 -->
 ## :book: 𝙰𝚋𝚘𝚞𝚝 𝙼𝚎
 - Full-Stack Software Developer 🖥
-- USA Triathlon Nationals Championship Qualifier
 - Podium - Olympic Triathlon USAT 🥇 
 - Ultra Endurance Athlete 🏊🚴🏃 
 - Ultra-Runner (100K) 🏃🔥🔥🔥🔥
