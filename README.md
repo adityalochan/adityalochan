@@ -45,7 +45,7 @@ Here are some ideas to get you started:
 - Ultra Endurance Athlete 🏊🚴🏃 
 - Ultra-Runner (100K) 🏃🔥🔥🔥🔥
 - 3x IRONMAN 70.3 🏊🚴🏃🍔
-- 1x USAT Age Group National Championships Qualifier
+- 1x USAT Age Group National Championships
 - Century Bike Rider (Imperial System) 🚴‍♂️ 
 - Half-Marathon Swimmer 🏊‍♀️ 
 - Scuba Diver 🤿
