@@ -44,7 +44,7 @@ Here are some ideas to get you started:
 - Podium - Olympic Triathlon USAT 🥇 
 - Ultra Endurance Athlete 🏊🚴🏃 
 - Ultra-Runner (100K) 🏃🔥🔥🔥🔥
-- 3x IRONMAN 70.3 🏊🚴🏃🍔
+- 4x IRONMAN 70.3 🏊🚴🏃🍔
 - 1x USAT Age Group National Championships
 - Century Bike Rider (Imperial System) 🚴‍♂️ 
 - Half-Marathon Swimmer 🏊‍♀️ 
