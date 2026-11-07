@@ -51,7 +51,7 @@ Here are some ideas to get you started:
 - Scuba Diver 🤿
 - Vegetarian 🌱✅
 
-Aspiring Ultraman
+Aspiring Ultraman world championships qualification
 <!-- 
 ## ⬆ 𝚆𝚑𝚊𝚝 𝙸'𝚖 𝚞𝚙 𝚝𝚘
 - 🔨 𝙸'𝚖 𝚌𝚞𝚛𝚛𝚎𝚗𝚝𝚕𝚢... -->
